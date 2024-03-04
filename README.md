@@ -1,1 +1,0 @@
-# Dynamical_Systems-Nonlinear_Systems_Chaos-SHARP-Term1
